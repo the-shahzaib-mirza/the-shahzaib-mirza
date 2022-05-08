@@ -1,0 +1,6 @@
+- 👋 Hi, I’m @the-shahzaib-mirza
+- 👀 I’m interested in Programming
+- 🌱 I’m currently learning Graphics Design
+- 💞️ I’m looking to collaborate on any art
+- 📫 How to reach me by Instagram
+
